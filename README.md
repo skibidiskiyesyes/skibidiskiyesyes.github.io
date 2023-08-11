@@ -1,1 +1,0 @@
-# skibidiskiyesyes.github.io
